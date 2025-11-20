@@ -1,4 +1,4 @@
-<img width="1536" height="2048" alt="image" src="https://github.com/user-attachments/assets/277e3cdd-3758-402f-b310-7f7d31635657" />
+<img width="1536" height="2048" alt="image" src="https://github.com/user-attachments/assets/158a5119-946d-4c97-a9f1-3971247c340a" />
 
 
 <img width="350" height="19" alt="proamy" src="https://github.com/user-attachments/assets/83c6d08d-ce00-4556-a23c-c8e5b55f04e9" /> ![yur](https://github.com/user-attachments/assets/87b906dc-7df9-4f47-a5bd-18223cf3f683)
